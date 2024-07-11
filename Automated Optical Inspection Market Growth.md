@@ -43,6 +43,6 @@ Research Nester is a leading service provider for strategic market research and 
 
 **U.K. Phone: +44 203 608 5919**
 
-![](Aspose.Words.b321ba68-53b3-4a94-886b-f4ea9ee1b7ad.001.png)
+![](Aspose.Words.b2817bf7-1ed2-49a4-a0f1-d5884994fd66.001.png)
 
-![](Aspose.Words.b321ba68-53b3-4a94-886b-f4ea9ee1b7ad.002.png)
+![](Aspose.Words.b2817bf7-1ed2-49a4-a0f1-d5884994fd66.002.png)
